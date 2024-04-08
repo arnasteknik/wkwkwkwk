@@ -1,0 +1,2 @@
+# wkwkwkwk
+tertawa lepas
